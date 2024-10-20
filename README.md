@@ -1,0 +1,1 @@
+# girilen4sayinintoplaminivecarpiminialma
